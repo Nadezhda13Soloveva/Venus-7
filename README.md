@@ -13,6 +13,6 @@
 
 **Видеоролик:** ...
 
-Артефакты командной работы Вы можете найти на доске Miro: https://miro.com/welcomeonboard/VHY1V2dBZjVKT2JmcmlhU295eHV5UldQYXNQV2F5b2hSRXRvR0hvREU4Q3dxT2FXRWpRNG9wWUR5Rjh4bG52VXwzMDc0NDU3MzQ4NjQ3ODA2MDg0fDI=?share_link_id=228346969800
+Артефакты командной работы Вы можете найти на [доске Miro](https://miro.com/welcomeonboard/VHY1V2dBZjVKT2JmcmlhU295eHV5UldQYXNQV2F5b2hSRXRvR0hvREU4Q3dxT2FXRWpRNG9wWUR5Rjh4bG52VXwzMDc0NDU3MzQ4NjQ3ODA2MDg0fDI=?share_link_id=228346969800).
 
 
